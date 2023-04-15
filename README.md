@@ -1,1 +1,1 @@
-# wildhacks23
+# Waste Reduction - Wildhacks 2023
